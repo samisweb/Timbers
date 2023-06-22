@@ -25,8 +25,8 @@ At Crate N Pack Solutions, we are committed to sustainability and environmental 
 In summary, Crate N Pack Solutions provides a wide range of timber packaging solutions and packaging services, from on-site packing to machine packing, container packing, and export machinery project services. We are committed to quality, innovation, and sustainability, providing customized solutions that meet the unique needs of our customers.
 
 ### Contact Information
-- Website: https://cratenpacksolutions.com.au/
-- Phone: (03) 8759 1696
-- Address: 36 Nicholas Drive, Dandenong South Victoria 3175, Australia
-- Facebook: https://www.facebook.com/117860804510712
-- Instagram: https://www.instagram.com/cratenpacksolutions
+- **Website:** https://cratenpacksolutions.com.au/
+- **Phone:** (03) 8759 1696
+- **Address:** 36 Nicholas Drive, Dandenong South Victoria 3175, Australia
+- **Facebook:** https://www.facebook.com/117860804510712
+- **Instagram:** https://www.instagram.com/cratenpacksolutions
